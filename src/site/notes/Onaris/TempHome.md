@@ -3,4 +3,4 @@
 ---
 
 [[Onaris/PCs/B.L.O.B\|B.L.O.B]]
-Das ist ein Test Ein großer Test ich teste voll  viel
+Das ist ein Test Ein großer Test ich teste voll super viel
